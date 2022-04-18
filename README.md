@@ -1,0 +1,1 @@
+https://tradutor-diego-lindo.azurewebsites.net/
